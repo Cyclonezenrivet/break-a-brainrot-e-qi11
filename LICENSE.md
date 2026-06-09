@@ -1,4 +1,4 @@
-
+rare break a brainrot egg Scripts offers the most advanced break a brainrot egg Script, with one-hit kill and auto-heal. Perfect for dominating any
 
 
 
